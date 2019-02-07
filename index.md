@@ -1,3 +1,3 @@
-# Welcome to my blog
+**Welcome to my blog waz poppin**
 
-I'm glad you are here. I plan to talk about ...
+*plan to talk about stuff and tings*
